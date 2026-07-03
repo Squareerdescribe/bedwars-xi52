@@ -1,4 +1,4 @@
-
+best bedwars Scripts is the best bedwars Script, featuring auto-upgrade and auto-sell. Safe and powerful for all your needs.
 
 
 
